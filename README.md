@@ -1,0 +1,1 @@
+If you can afford, please consider [donating](https://www.paypal.me/kapitanpulido), but no worries if you cannot, use this for absolutely free.
